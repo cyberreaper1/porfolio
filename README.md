@@ -1,3 +1,2 @@
-im cyberreaper i love to hack but i love to help people 
-i do have a fee but it is affordable 
-im trying to start a business its a start tho trying to make i a compny 
+Hello, my name is Cyberreaper, a skilled programmer, certified and licensed in cybersecurity. 
+While I am fond of what is commonly known as hacking, I more importantly love to help people! I do charge a small fee, but I work to make sure it's consistent and affordable. While I'd like to start a business out of my skills, this is just the start. Future goals include be a full fledged business, a larger platform, and to work close with other skilled programmers like myself. Feel free to reach out if you'd like to utilizes my services. Thank you for your time. Good day! 
